@@ -1,1 +1,2 @@
-# Whoknows
+Let us be honest folks the facts speak for themselves the work force within design in the UK remains overflown with men. <iframe src="https://giphy.com/embed/l41YcLnzt7SNyxUha" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/bathroom-flood-leak-l41YcLnzt7SNyxUha">via GIPHY</a></p>
+3/4 higher than the 53% national average. Women Compared to their male. Equals are likely to be paid 17% less and are less likely to be seen in a managerial position.
