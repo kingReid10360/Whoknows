@@ -1,4 +1,4 @@
-![frame_2_delay-0 2s](https://user-images.githubusercontent.com/94851382/143466361-b6e3a12a-6063-499c-ab79-8f7c506f4604.jpg)
+![ezgif-2-a40a3bcf951b](https://user-images.githubusercontent.com/94851382/143466628-3fa85a78-3781-4b47-92ab-a43f0b78cfdd.png)
 
 
 
