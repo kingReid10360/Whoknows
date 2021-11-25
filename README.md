@@ -20,3 +20,4 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
  
  ![ezgif-1-a787eb9db72a](https://user-images.githubusercontent.com/94851382/143472528-331cc3a0-7562-44af-872c-e973ce24591e.gif)       
 
+* Mentoring! Commitment dedication and time is required for this but she is in a mental who is a different ethnicity gender nationality age race or culture open doors to alternative view and opinion. ![ezgif-1-c9203c5bb9ed](https://user-images.githubusercontent.com/94851382/143475694-004850a6-a348-44d2-addf-1d3272ec8007.png)
