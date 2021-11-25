@@ -1,6 +1,6 @@
 
 
-# ###“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.”###
+ ###“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.”###
 
 
 
