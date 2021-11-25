@@ -14,4 +14,4 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
 ![ezgif-2-5b8095bb4732](https://user-images.githubusercontent.com/94851382/143465291-a93a270d-9d75-4f1f-ad85-b9d2be2008fb.gif)
 
  * Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
-* Support and embrace diversity on all levels, no one wants to be a quarter or a bottom on a seat it’s Dehumanising and reduces represented groups as a mere statistic ![ezgif-1-2e3eb9958c36](https://user-images.githubusercontent.com/94851382/143468304-95108aab-fcc4-4898-a232-99491c1554df.gif) ain’t nobody got time for that.
+* Support and embrace diversity on all levels, no one wants to be a quarter or a bottom on a seat it’s Dehumanising and reduces represented groups as a mere statistic  """«» ain’t nobody got time for that.  """«»
