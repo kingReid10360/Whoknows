@@ -20,8 +20,6 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
   <p> <p>
 <ul>
   <p> <p>
-<ul>
- 
 *  Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
   <p> <p>
 <ul>
