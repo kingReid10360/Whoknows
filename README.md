@@ -12,7 +12,7 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
  <p> <p>
 <ul>
  
-* Internship programs to attract more diverse talent and to expand the pool of creatives with different backgrounds and perspectives PS no experience or age limit is needed just passion.
+*   Internship programs to attract more diverse talent and to expand the pool of creatives with different backgrounds and perspectives PS no experience or age limit is needed just passion.
   <p> <p>
 <ul>
   <p> <p>
