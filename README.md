@@ -18,7 +18,7 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool. 
  
  
-![ezgif-1-9c0fbb2c74fe](https://user-images.githubusercontent.com/94851382/143476112-1ffecb6c-cead-4f7b-bd6a-db4fae18e65e.png)
+                                           ![ezgif-1-9c0fbb2c74fe](https://user-images.githubusercontent.com/94851382/143476112-1ffecb6c-cead-4f7b-bd6a-db4fae18e65e.png)
 
 
 * Mentoring! Commitment dedication and time is required for this but she is in a mental who is a different ethnicity gender nationality age race or culture open doors to alternative view and opinion.
