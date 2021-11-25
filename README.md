@@ -12,10 +12,10 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
  <p> <p>
 <ul>
  
-* Internship programs to attract more diverse talent and to expand the pool of creatives with different backgrounds and perspectives PS no expe![ezgif-2-6503eac4f6a8](https://user-images.githubusercontent.com/94851382/143460861-7d9eed9a-ef8f-4e70-9bbd-7cf297f22001.gif)
-rience or age limit is needed just passion.
+* Internship programs to attract more diverse talent and to expand the pool of creatives with different backgrounds and perspectives PS no experience or age limit is needed just passion.
 
- 
+ ![ezgif-2-6503eac4f6a8-1](https://user-images.githubusercontent.com/94851382/143461313-57044b84-4166-4519-a727-601c79daed07.gif)
 
 
- * Let’s start practising conscious inclusion, ![Uploading ezgif-2-6503eac4f6a8.gif…]()                  let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
+
+ * Let’s start practising conscious inclusion,              let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
