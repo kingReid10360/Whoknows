@@ -7,7 +7,7 @@ Let us be honest folks the facts speak for themselves the work force within desi
 
 ![giphy](https://user-images.githubusercontent.com/94851382/143273172-72027e98-c789-4208-9843-500d14b29566.gif)
 
-![ezgif-2-1418c40ffd0e](https://user-images.githubusercontent.com/94851382/143463699-28acccff-c24c-40d2-a911-2240b25b4ef3.png)
+![ezgif-2-de27ab1b039f](https://user-images.githubusercontent.com/94851382/143463990-71022bbb-d4d7-4c35-9a4f-46fafd12b826.png)
 
 
 For black Asians or minority ethnic backgrounds they make up just a dismal **13%** of jobs and it gets worse as senior positions are measly **12%** of ethnic staff. If you thought the Sitch couldn’t get any worse the pay gap could range up to **17%**           ![ezgif-4-f4b04d5488d5](https://user-images.githubusercontent.com/94851382/143444811-5030342c-ef6c-4816-9086-1aea79d21e02.png)
