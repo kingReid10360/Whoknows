@@ -13,6 +13,8 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
 <p> How can we pacify this ongoing problem I hear you cry, I am no expert and these are only suggestions?
 
 * Internship programs to attract more diverse talent and to expand the pool of creatives with different backgrounds and perspectives PS no experience or age limit is needed just passion.
+ 
 ![ezgif-2-5b8095bb4732](https://user-images.githubusercontent.com/94851382/143465291-a93a270d-9d75-4f1f-ad85-b9d2be2008fb.gif)
-* Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
+
+ * Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
 
