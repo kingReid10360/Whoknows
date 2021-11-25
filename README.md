@@ -1,7 +1,8 @@
+![frame_2_delay-0 2s](https://user-images.githubusercontent.com/94851382/143466361-b6e3a12a-6063-499c-ab79-8f7c506f4604.jpg)
 
 
 
- # Graphic ![ezgif-7-0ae6bace15aa](https://user-images.githubusercontent.com/94851382/143455628-1e5f7250-d009-4530-8fe4-b791d5c02ebd.gif) design 
+ # Graphic               design 
 
 Let us be honest folks the facts speak for themselves the work force within design in the UK remains overflown with men **3/4** higher than the **53%** national average. Women Compared to their male. Equals are likely to be paid **17%** less and are less likely to be seen in a managerial position
 
@@ -17,4 +18,4 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
 ![ezgif-2-5b8095bb4732](https://user-images.githubusercontent.com/94851382/143465291-a93a270d-9d75-4f1f-ad85-b9d2be2008fb.gif)
 
  * Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
-
+* support and embrace diversity on all levels, no one wants to be a quarter or a bottom on a seat it’s Dehumanising and reduces represented groups as a mere statistic ain’t nobody got time for that.
