@@ -8,7 +8,8 @@ Let us be honest folks the facts speak for themselves the work force within desi
 
 Houston we have a problem again! 
 
-<iframe src="https://giphy.com/embed/3oEjHWzZQaCrZW2aWs" width="480" height="200" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/3oEjHWzZQaCrZW2aWs">via GIPHY</a></p>
+![ezgif-4-f4b04d5488d5](https://user-images.githubusercontent.com/94851382/143441000-bcf12f4d-dbaa-4fa0-937b-008bf359900d.png)
+
 
 For black Asians or minority ethnic backgrounds they make up just a dismal 13% of jobs and it gets worse as senior positions are measly 12% of ethnic staff. If you thought the Sitch couldn’t get any worse the pay gap could range up to 17%
 
