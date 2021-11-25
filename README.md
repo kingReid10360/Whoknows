@@ -1,7 +1,7 @@
 
 
 
- # Graphic ![ezgif-7-e8f1ef11cfaa](https://user-images.githubusercontent.com/94851382/143455432-ecb208e8-d421-4d0d-8a85-d42e12267afe.gif) design 
+ # Graphic ![ezgif-7-0ae6bace15aa](https://user-images.githubusercontent.com/94851382/143455628-1e5f7250-d009-4530-8fe4-b791d5c02ebd.gif) design 
 
 Let us be honest folks the facts speak for themselves the work force within design in the UK remains overflown with men **3/4** higher than the **53%** national average. Women Compared to their male. Equals are likely to be paid **17%** less and are less likely to be seen in a managerial position
 
