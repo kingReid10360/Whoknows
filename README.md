@@ -15,3 +15,4 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
 
  * Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
 * Support and embrace diversity on all levels, no one wants to be a quarter or a bottom on a seat it’s Dehumanising and reduces represented groups as a mere statistic  <em>ain’t nobody got time for that. <em>
+* ##### Stop            hiring friends, our friends often have similar views putting friends forward for jobs, encourages management to hire someone who is like you stagnating the diversity pool
