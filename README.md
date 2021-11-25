@@ -13,10 +13,12 @@ For black Asians or minority ethnic backgrounds they make up just a dismal **13%
  
 ![ezgif-2-5b8095bb4732](https://user-images.githubusercontent.com/94851382/143465291-a93a270d-9d75-4f1f-ad85-b9d2be2008fb.gif)
 
- * Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
+* Let’s start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included 
 * Support and embrace diversity on all levels, no one wants to be a quarter or a bottom on a seat it’s Dehumanising and reduces represented groups as a mere statistic  ***ain’t nobody got time for that***.
+ 
+ 
+ ![ezgif-1-a787eb9db72a](https://user-images.githubusercontent.com/94851382/143472528-331cc3a0-7562-44af-872c-e973ce24591e.gif)
+ 
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool. 
-![ezgif-1-a787eb9db72a](https://user-images.githubusercontent.com/94851382/143472528-331cc3a0-7562-44af-872c-e973ce24591e.gif)
-
 
 *
