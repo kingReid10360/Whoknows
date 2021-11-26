@@ -1,4 +1,7 @@
-# Graphic ![ezgif-1-3d7b6800f064](https://user-images.githubusercontent.com/94851382/143467604-d1d4f1d2-9ac3-45e6-89d2-cedd4c276626.gif) design not designed for diversity.
+![ezgif-1-3d7b6800f064](https://user-images.githubusercontent.com/94851382/143467604-d1d4f1d2-9ac3-45e6-89d2-cedd4c276626.gif)
+
+# Graphic design not designed for diversity.
+
 
 # “The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.” #
 ###### Marcus Garvey 
