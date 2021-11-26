@@ -7,9 +7,7 @@
 ###### Marcus Garvey 
 
 
-Let us be honest folks, the facts speak for themselves the work force within design in the UK remains overflown with men **3/4** higher than the **53%** national average. Women Compared to their male equals are likely to be paid **17%** less and are less likely to be seen in a managerial position.
-
-![ezgif-2-de27ab1b039f](https://user-images.githubusercontent.com/94851382/143463990-71022bbb-d4d7-4c35-9a4f-46fafd12b826.png)
+Facts speak for themselves the graphic design industry in the UK remains overflown with men **3/4** higher than the **53%** national average. Women Compared to their male equals are likely to be paid **17%** less and are less likely to be seen in a managerial position.
 
 For black Asians or minority ethnic backgrounds they only make up a dismal **13%** of jobs and as senior positions a measly **12%** of ethnic staff. If you thought the Sitch, could not get any worse the pay gap could range up to **17%** 
 
