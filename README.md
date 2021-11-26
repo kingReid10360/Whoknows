@@ -19,13 +19,18 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
 ![ezgif-2-5b8095bb4732](https://user-images.githubusercontent.com/94851382/143465291-a93a270d-9d75-4f1f-ad85-b9d2be2008fb.gif)
 
 * Let us start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included. 
-* Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
+
+ 
+ [Conscious Inclusion .pdf](https://github.com/kingReid10360/Whoknows/files/7610150/Conscious.Inclusion.pdf)
+
+ 
+ 
+ 
+ * Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool.
  
- ![ezgif-1-9c0fbb2c74fe](https://user-images.githubusercontent.com/94851382/143476112-1ffecb6c-cead-4f7b-bd6a-db4fae18e65e.png)
+
 
 
 * Mentoring! Commitment, dedication, and time is required for this role, and if you have all these why not. Just make sure you choose someone with a different ethnicity, gender, nationality, age, and race this opens doors to alternative but needed point of view and opinions. 
 
- 
-![ezgif-1-c9203c5bb9ed](https://user-images.githubusercontent.com/94851382/143475694-004850a6-a348-44d2-addf-1d3272ec8007.png)
