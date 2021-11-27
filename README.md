@@ -32,8 +32,8 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
  
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool.
 
+![Untitled-2](https://user-images.githubusercontent.com/94851382/143687094-4310c505-0226-48e8-af01-cad7fcd3fb9e.jpg)
 
-![Untitled-2-01](https://user-images.githubusercontent.com/94851382/143685711-d189fd58-a4c2-475e-b820-8a6c34c4f40b.jpg)
 
 
 * Mentoring! Commitment, dedication, and time is required for this role, and if you have all these why not. Just make sure you choose someone with a different ethnicity, gender, nationality, age, and race this opens doors to alternative but needed point of view and opinions. 
