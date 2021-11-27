@@ -24,7 +24,7 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
 * Let us start practising conscious inclusion, let’s ask ourselves what voices are missing and give them an opportunity to be heard and most importantly included. 
 
  
-![Untitled-4](https://user-images.githubusercontent.com/94851382/143686564-2b0a4f90-5cc3-4d08-9eed-5adc023c8b6b.jpg)
+![Untitled-4](https://user-images.githubusercontent.com/94851382/143686648-46ada351-a56b-4a6e-b6b8-906b633b3abb.jpg)
 
  
  * Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
