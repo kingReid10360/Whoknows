@@ -26,8 +26,8 @@
 # Luckily, the times are always evolving, 
  
 # I am more optimistic than ever before here are some key points how to ajar this closed door. 
-# <ol>
-  <li> 
+ <ol>
+  <li> ##### 
  First Conscious inclusion to remove the illusion that we are not missing diverse voices. 
 </li>
   <li>Second 
@@ -37,7 +37,7 @@
  Stop hiring friends, they have similar views to you, and may continue to choose these same views and stagnant the diversity pool. 
  </li>
   <li>Fourth
-##### Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit. 
+Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit. 
 
 https://www.represent.uk.com/projects/designing-diversity/
 https://www.represent.uk.com/projects/designing-diversity/essays/the-creative-benefits-of-diversity/
