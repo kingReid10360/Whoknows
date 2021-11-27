@@ -41,13 +41,11 @@ I am more optimistic than ever before here are some key points how to ajar this 
  
 ![Conscious Inclusion 1 0 ](https://user-images.githubusercontent.com/94851382/143691198-2a0fae30-466e-4559-af26-82fd33439bc8.jpg)
 
+
 ![Bum 1 0-01](https://user-images.githubusercontent.com/94851382/143710721-f83772fc-456f-41e8-9912-b99b67cca2b3.jpg)
 
  
 ![No more 1 1](https://user-images.githubusercontent.com/94851382/143691254-dc610c39-5155-4244-b919-1e038e9152e0.jpg)
-
- 
-![Pool 1 0 -01](https://user-images.githubusercontent.com/94851382/143691387-e9641f6c-0c7d-41d4-be48-1a7111d38b25.jpg)
 
 
 ![welcome  1 0 -01](https://user-images.githubusercontent.com/94851382/143720996-52b6bea9-5f48-4c5c-9646-cf45a130bb17.jpg)
