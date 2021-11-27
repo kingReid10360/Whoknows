@@ -38,7 +38,8 @@ Stop hiring friends, they have similar views to you, and may continue to choose 
   <li>Fourth
 Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit. 
 
-
+https://www.represent.uk.com/projects/designing-diversity/
+https://www.represent.uk.com/projects/designing-diversity/essays/the-creative-benefits-of-diversity/
 
 
 ![Conscious Inclusion 1 0 ](https://user-images.githubusercontent.com/94851382/143691198-2a0fae30-466e-4559-af26-82fd33439bc8.jpg)
