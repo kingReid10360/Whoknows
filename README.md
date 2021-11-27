@@ -31,8 +31,8 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
  * Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool.
 
- ![Untitled-2](https://user-images.githubusercontent.com/94851382/143685268-77cda110-4d54-46d6-930e-3492f8bdf580.jpg)
 
+![Untitled-2](https://user-images.githubusercontent.com/94851382/143685372-94b8565c-5598-4acf-a5c5-01abb2f529ce.jpg)
 
 
 
