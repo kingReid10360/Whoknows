@@ -27,7 +27,7 @@
  
 # I am more optimistic than ever before here are some key points how to ajar this closed door. 
   
-  ##### Conscious inclusion to remove the illusion that we are not missing diverse voices. 
+5</h5> Conscious inclusion to remove the illusion that we are not missing diverse voices. 
 </li>
   <li>Second 
  No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels. 
