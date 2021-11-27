@@ -11,12 +11,11 @@ Facts speak for themselves the graphic design industry in the UK remains overflo
 
 For black Asians or minority ethnic backgrounds they only make up a dismal **13%** of jobs and as senior positions a measly **12%** of ethnic staff. If you thought the Sitch, could not get any worse the pay gap could range up to **17%** 
 
-![ezgif-2-0746b5dd247b](https://user-images.githubusercontent.com/94851382/143464401-7014eea4-aace-47ea-afd3-1e4d5b728a1b.gif)
+
 <p> How can we pacify this ongoing problem I hear you cry before I start, I need you to know I am no expert and these are only suggestions? 
 
 * Internship programs to attract more diverse talent and to expand the pool of creatives with diverse backgrounds and perspectives PS no experience or age limit is needed just passion.
  
- ![expand the creative pool 2 1](https://user-images.githubusercontent.com/94851382/143616865-4a3236f3-3789-44d6-87ab-dedf42fbc131.jpg)
 
  
  
@@ -31,10 +30,9 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
  
  * Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool.
- 
- ![Untitled-2](https://user-images.githubusercontent.com/94851382/143685187-3cf8d5cd-01ba-4d4c-afa0-bc3b458df478.jpg)
 
- 
+ ![Untitled-2](https://user-images.githubusercontent.com/94851382/143685268-77cda110-4d54-46d6-930e-3492f8bdf580.jpg)
+
 
 
 
