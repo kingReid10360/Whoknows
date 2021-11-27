@@ -31,9 +31,11 @@ First Conscious inclusion to remove the illusion that we are not missing diverse
 </li>
   <li>Second 
 No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels. 
- 
+</li>
+  <li>Third 
 Stop hiring friends, they have similar views to you, and may continue to choose these same views and stagnant the diversity pool. 
- 
+ </li>
+  <li>Fourth
 Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit. 
 
 
