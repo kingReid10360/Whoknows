@@ -17,7 +17,6 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
 * Internship programs to attract more diverse talent and to expand the pool of creatives with diverse backgrounds and perspectives PS no experience or age limit is needed just passion.
  
 
- ![Untitled-2-01](https://user-images.githubusercontent.com/94851382/143685527-404adf3f-f829-4f91-9b4b-28c366155fca.jpg)
 
  
 
@@ -27,9 +26,9 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
  
 
  
- 
- 
  * Support and embrace diversity on all levels, no one wants to be just a bum on a seat and a quota it is dehumanising, and reduces represented groups as a mere statistic, ***ain’t nobody got time for that***.
+ 
+ 
 * Stop hiring friends, our friends often have similar views, putting friends forward for jobs encourages management to hire someone who is just like you, stagnating the diversity pool.
 
 
@@ -38,3 +37,4 @@ For black Asians or minority ethnic backgrounds they only make up a dismal **13%
 
 * Mentoring! Commitment, dedication, and time is required for this role, and if you have all these why not. Just make sure you choose someone with a different ethnicity, gender, nationality, age, and race this opens doors to alternative but needed point of view and opinions. 
 
+![Untitled-3](https://user-images.githubusercontent.com/94851382/143686286-755f0386-69e3-47ac-9653-f98841de9299.jpg)
