@@ -6,25 +6,26 @@
 # ***“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.” #***
 ###### Marcus Garvey 
 
-I see a problem in this design, 
+#  I see a problem in this design, 
  
 
-The design of visual communication. 
+#  The design of visual communication. 
  
 
-I hear this message loud and clear, there is no room for me in this career, 
+# I hear this message loud and clear, there is no room for me in this career, 
  
-No key. 
  
-The door is closed. 
+# No key. 
  
-If I impose only unlucky 13 is the percentage for me. 
+#  The door is closed. 
  
-Passionate about Communication, and problem solving. 
+# If I impose only unlucky 13 is the percentage for me. 
  
-Luckily, the times are always evolving, 
+# Passionate about Communication, and problem solving. 
  
-I am more optimistic than ever before here are some key points how to ajar this closed door. 
+# Luckily, the times are always evolving, 
+ 
+# I am more optimistic than ever before here are some key points how to ajar this closed door. 
 <ol>
   <li> 
 First Conscious inclusion to remove the illusion that we are not missing diverse voices. 
