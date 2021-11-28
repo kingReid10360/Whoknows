@@ -40,6 +40,8 @@
  
  ## <em>4. Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit.<em> 
 
+references: 
+ 
 https://www.represent.uk.com/projects/designing-diversity/
 https://www.represent.uk.com/projects/designing-diversity/essays/the-creative-benefits-of-diversity/
 
