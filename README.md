@@ -6,7 +6,7 @@
 # ***“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.” #***
 ###### Marcus Garvey 
 
-#  I see a problem in this design, 
+#  <em>cI see a problem in this design,<em>c 
  
 
 #  The design of visual communication. 
@@ -18,8 +18,7 @@
 # No key. 
  
 #  The door is closed. 
-<ol>
-  <li>First 
+
 # If I impose only unlucky 13 is the percentage for me. 
  
 # Passionate about Communication, and problem solving. 
