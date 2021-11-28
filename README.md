@@ -32,13 +32,13 @@
 
 
 
-## <em>Conscious inclusion to remove the illusion that we are not missing diverse voices.<em> 
+## <em>1. Conscious inclusion to remove the illusion that we are not missing diverse voices.<em> 
 
-## <em>No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels.<em> 
+## <em>2. No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels.<em> 
 
-## <em>Stop hiring friends, they have similar views to you, and may continue to choose these same views and stagnant the diversity pool.<em> 
+## <em>3. Stop hiring friends, they have similar views to you, and may continue to choose these same views and stagnant the diversity pool.<em> 
  
- ## <em>Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit.<em> 
+ ## <em>4. Design is not a dictatorship so let us welcome internships to those you assume the shoe does not fit.<em> 
 
 https://www.represent.uk.com/projects/designing-diversity/
 https://www.represent.uk.com/projects/designing-diversity/essays/the-creative-benefits-of-diversity/
