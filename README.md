@@ -3,10 +3,10 @@
 # Graphic design not designed for diversity.
 
 
-# ***“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.” #***
+“The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.” 
 ###### Marcus Garvey 
 
-#  <em>cI see a problem in this design,<em>c 
+#  see a problem in this design,
  
 
 #  The design of visual communication. 
@@ -27,6 +27,17 @@
  
 # I am more optimistic than ever before here are some key points how to ajar this closed door. 
   
+
+
+
+
+
+
+
+
+
+
+
 # Conscious inclusion to remove the illusion that we are not missing diverse voices. 
 
 # No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels. 
