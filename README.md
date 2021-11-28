@@ -32,13 +32,6 @@
 
 
 
-
-
-
-
-
-
-
 #### Conscious inclusion to remove the illusion that we are not missing diverse voices. 
 
 No one wants to be a bum on the seat to repeat a false Status quo embrace diversity on all levels. 
