@@ -26,8 +26,8 @@
 # Luckily, the times are always evolving, 
  
 # <p>I am more optimistic than ever before here are some key points how to ajar this closed door.<p>
-
-
+<p> <p>
+<p> <p>
 
 
 
